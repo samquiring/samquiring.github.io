@@ -15,7 +15,7 @@
 - I value
   - Bias for action
   - Creativity
-  - Disagree and commit
+  - Have Backbone; Disagree and commit ([more info](https://www.amazon.jobs/content/en/our-workplace/leadership-principles))
 
 ## How you can help me
 
